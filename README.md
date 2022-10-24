@@ -1,1 +1,1 @@
-Computer Science and Engineering, Math student at the University of Iowa
+Computer Science, Engineering, Math student at the University of Iowa
